@@ -6,4 +6,6 @@ Aretha Louise Franklin (* 25. März 1942 in Memphis, Tennessee; † 16. August 2
 * Yeah!!! 
 * Soul Sister
 * I Never Loved a Man the Way I Love You 
-* Aretha Arrives 
+* Aretha Arrives
+> People really don't have to give you anything, so appreciate what people give you
+ 
