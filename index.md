@@ -9,3 +9,5 @@ Aretha Louise Franklin (* 25. März 1942 in Memphis, Tennessee; † 16. August 2
 * Aretha Arrives
 > People really don't have to give you anything, so appreciate what people give you
  
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/b/b5/Aretha_Franklin_on_January_20%2C_2009.jpg/170px-Aretha_Franklin_on_January_20%2C_2009.jpg"/>
